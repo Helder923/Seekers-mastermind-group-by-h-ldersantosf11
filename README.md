@@ -1,2 +1,22 @@
-# Seekers-mastermind-group-by-h-ldersantosf11
+# Seekers-mastermind-group-by-heldersantosf11
 https://www.facebook.com/heldersantosf11
+
+Other resources
+
+Emergency food dropship - https://mypatriotsupply.com/pages/rs-repdig-ppw-jerry?rfsn=1750310.2a7b74&subid=Jerry
+
+Wizink -  https://www.wizink.pt/mail/landing/aderir-cartao-de-credito-wizink-rewards.html?a=C1H27&f=14R00000IEL000000HI&gclid=EAIaIQobChMIsIXP6s_H6QIVtBLTCh2HbwWDEAEYASAAEgLVtvD_BwE
+
+World Remit - https://www.worldremit.com/en
+
+Applied science university EU - https://www.ue-germany.com/blog/en-game-design-bachelor/?utm_source=facebook&utm
+
+Findling: https://test.findeling.com/?gclid=Cj0KCQjwn7j2BRDrARIsAHJkxmzNt9LbGPtVJ6W7hVjvJX-aK-cRZ3K9xMVwDA2MlU5uswlsber42YoaAnvsEALw_wcB - $9,90
+
+Inseec EU - studying abroad - https://www.inseec.education/?utm_source=facebook&utm_medium=cpc&utm_campaign=Effi1%20-%20Brochures
+
+English assessment - https://shop.learning-7.com/cart/?add-to-cart=6848&quantity=1 - $67,75
+
+Wordpress site maintenance - https://getflywheel.com/
+
+Course abroad application - https://www.naba.it/en/general-italy-alldl-lp-fb?utm_source=facebook&utm_medium=SOCIALADV&utm
